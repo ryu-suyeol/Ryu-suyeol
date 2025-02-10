@@ -7,3 +7,5 @@
     <img width="70%" src="https://i.postimg.cc/d0cRV40X/Untitled835-20250208202007.png">
 </p>
 <p align="center" width="100%"><a href=https://rentry.co/suyeol>𝘳𝘦𝘯𝘵𝘳𝘺</a>
+  <p align="center" width="100%">𝘥𝘪𝘴𝘤𝘰𝘳𝘥　
+  <p align="center" width="100%">𝘭𝘦𝘦𝘥𝘰𝘯𝘨𝘸𝘰𝘰𝘬𝘬.
